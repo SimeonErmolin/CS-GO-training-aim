@@ -1,0 +1,1 @@
+# CS:GO Training aim
